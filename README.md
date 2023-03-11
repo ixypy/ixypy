@@ -1,1 +1,4 @@
-i like making lego scripts
+i *used* like making lego scripts
+
+
+
